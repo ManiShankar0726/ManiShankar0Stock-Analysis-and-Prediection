@@ -1,0 +1,1 @@
+# ManiShankar0Stock-Analysis-and-Prediection
